@@ -1,0 +1,5 @@
+Ah, the world's a cheerful place, filled with rainbows and unicorns... or so we like to think! But let's face it, behind those smiles and positive vibes lies a sneaky little beast called mental health stigma. Yep, it's the elephant in the room that we'd rather ignore than address.
+
+But guess what? Today, we're ditching the rose-colored glasses and embracing the fact that we're all a bit wonky inside. Moody? Oh, it's not just your average Joe—it's your friendly neighborhood mental health buddy here to shake things up!
+
+Picture this: Moody's like a cozy hangout where you can tune in to mental health podcasts. We're talking real talk from pros who know their stuff. From unraveling your brain's mysteries to navigating life's crazy rollercoaster, we've got you covered. So, whether you're battling your own demons or just curious, hop on board the Moody train—it's a wild ride you won't want to miss!
